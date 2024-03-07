@@ -1,0 +1,2 @@
+# belajar-wd
+harus bisa 
